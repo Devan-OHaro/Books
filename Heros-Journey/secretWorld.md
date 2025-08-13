@@ -37,4 +37,8 @@ Ignores it and hears ominous voice in head (it's operator telling him to change 
 The eyes of an entity is seen.
 Operator is able to provide reverse gravity tech and scare off eyes.
 Enlists MC to help... again.
-
+MC is reluctant and goes to friends and family.
+They all say it's a terrible fate to have aliens essentially mess with your life from afar.
+MC's resolve to bear with everything until the operator's tasks are done.
+Afterall, he promised that it will fade with enough resistance.
+Goes on journey of first arc.
